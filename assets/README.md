@@ -1,1 +1,1 @@
-Wiring diagram and build photos coming soon.
+Wiring diagram available, build photos coming soon.
